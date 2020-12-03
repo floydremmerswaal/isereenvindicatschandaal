@@ -1,0 +1,1 @@
+Hoe lang is het geleden dat er een vindicat schandaal geweest is?
